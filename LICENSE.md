@@ -1,4 +1,4 @@
-
+Experience shrink for brainrots like never before with exclusive shrink for brainrots Scripts, the #1 Script. Includes aimbot and speed for
 
 
 
